@@ -9,3 +9,6 @@
 
 #### Agora estou pronta para avançar :rocket:
 ![gato digitando](https://c.tenor.com/rkY5QA5c3VAAAAAC/gato-digitando.gif)
+
+
+-   [X] Dani Severiano
